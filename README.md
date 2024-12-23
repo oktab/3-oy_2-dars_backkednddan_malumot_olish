@@ -1,0 +1,1 @@
+# 3-oy_2-dars_backkednddan_malumot_olish
